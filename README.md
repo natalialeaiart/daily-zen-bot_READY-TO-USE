@@ -111,4 +111,4 @@
 
 Этот бот создан с любовью и интеллектом: [@natalialeaiart](https://t.me/natalialeaiart)
 
-Присоединяйтесь к Telegram-каналу для ежедневной дозы вдохновения: [@dailyzendose](https://t.me/dailyzendose)
+
